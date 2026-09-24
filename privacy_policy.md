@@ -1,4 +1,3 @@
-[privacy_policy.md](https://github.com/user-attachments/files/32612367/privacy_policy.md)
 # Политика за поверителност — Balkan Casino
 
 **Последна актуализация:** 10.09.2026
